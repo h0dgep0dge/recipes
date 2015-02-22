@@ -14,4 +14,4 @@
 1. Heat the oil in a wok and fry the garlic, onion and chilli over a moderate heat until onion is soft
 2. Add the sugar and stir until slightly caramelised
 3. Add the soy sauce and peanut butter and stir through
-3. Add a little coconut milk at a time until you achieve your desired consistency
+4. Add a little coconut milk at a time until you achieve your desired consistency
